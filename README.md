@@ -10,7 +10,7 @@
 
 
  <div align='center'> 
-  usually in party chat
+  i like thadzi and yeah
 <div align='center'>
  <div align='center'> 
  
