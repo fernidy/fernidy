@@ -10,7 +10,7 @@
 
 
  <div align='center'> 
-  i like thadzi and yeah
+  i like tadc and md and yeah
 <div align='center'>
  <div align='center'> 
  
