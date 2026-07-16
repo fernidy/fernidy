@@ -15,5 +15,5 @@
  <div align='center'> 
  
 
-[ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [straw](https://fawnnys.straw.page) ![]() ![]() ![]() ![]() ![]() [guns](https://guns.lol/pomnie) 
+[ata](https://myles.atabook.org)  ![]() ![]() ![]() ![]() ![]() [rentry](https://rentry.org/-duffys) ![]() ![]() ![]() ![]() ![]() [guns](https://guns.lol/fernidy) 
 
